@@ -1,2 +1,2 @@
-Official website of RCCG LP10 YAYA Convention 2022.
+Official website of RCCG Lagos Province 10 YAYA Convention.
 Designed by The Rock Digital.
